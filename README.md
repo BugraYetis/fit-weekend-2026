@@ -1,6 +1,6 @@
 <div align="center">
 
-# 🎪 Fit Weekend 2026
+# 🏃 Fit Weekend 2026
 
 **Festival / Etkinlik · Sağlıklı Yaşam Festivali**
 
